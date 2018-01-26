@@ -1,0 +1,2 @@
+# mac
+ako eto
